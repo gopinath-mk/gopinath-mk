@@ -88,7 +88,7 @@ October 2022 – July 2026
 ## 📫 Connect With Me
 
 - **Email:** [kgopinath397@gmail.com](mailto:kgopinath397@gmail.com)
-- **LinkedIn:** Add your LinkedIn profile URL
+- **LinkedIn:** [Click me](https://www.linkedin.com/in/gopinath-karuppasamy)
 - **GitHub:** You're already here!
 
 ---
